@@ -6285,7 +6285,7 @@ The first statement is an expectation.
 
 The second reflects sentiment or confidence.
 
-### Think of It Like This
+**Think of It Like This:**
 
 **Expectation asks: “What do I think will happen?”**
 
