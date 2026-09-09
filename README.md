@@ -40,13 +40,6 @@ Thus, within this framework, **“It is not always Davao City”** means that **
 
 
 
-[The Valeroso City is Davao City](https://www.davaocity.gov.ph)
-
-[Davao City is The Valeroso City](https://www.davaocity.gov.ph)
-
-[Davao City is under The Valeroso City](https://www.davaocity.gov.ph)
-
-
 
 
 
