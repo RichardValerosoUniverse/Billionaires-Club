@@ -32,11 +32,7 @@ This is definitive.
 
 
 
-**"It is not always Davao City”** means that The Valeroso City is not confined exclusively to Davao City’s geographic identity, physical location, territorial boundaries, literal name, or the people residing within Davao City’s territorial boundaries. It is not limited solely to what is geographically, physically, territorially, or literally identified as “Davao City.”
-
-
-
-Within this framework, The Valeroso City encompasses people beyond those residing within Davao City’s territorial boundaries, as well as businesses, establishments, places, properties, institutions, organizations, communities, activities, events, services, systems, identities, concepts, designations, relationships, and other persons, entities, matters, things, or interests intended to be included under or associated with The Valeroso City.
+**“It is not always Davao City”** means that, within this framework, The Valeroso City is not confined solely to Davao City’s geographic identity, physical location, territorial boundaries, literal name, or residents, but encompasses people and diaspora beyond those boundaries, as well as territory, geography, jurisdictions, neighborhoods, settlements, homes, properties, land, government and public administration, political and civic institutions, law and justice, rights and responsibilities, businesses, commerce, industry, finance, banking, markets, employment, labor, professions, investments, infrastructure, buildings, facilities, utilities, energy, water, sanitation, waste management, transportation, mobility, logistics, communications, information, technology, digital systems, education, healthcare, science, research, innovation, social welfare, human development, housing, food systems, agriculture, public safety, security, emergency and disaster services, environmental protection, natural resources, climate and sustainability, culture, arts, religion, spirituality, heritage, history, traditions, language, sports, recreation, tourism, hospitality, entertainment, media, community life, social life, families, relationships, organizations, institutions, associations, activities, events, programs, services, systems, identities, concepts, designations, resources, assets, opportunities, experiences, interests, external connections, regional and international relationships, and all other interests intended to be included under or associated with The Valeroso City.
 
 
 
