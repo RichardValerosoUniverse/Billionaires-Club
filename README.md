@@ -40,11 +40,11 @@ Thus, within this framework, **“It is not always Davao City”** means that **
 
 
 
-Within this structure, Davao City is designated as 8000, while Valeroso City is designated as 1111. Accordingly, 8000 is The Valeroso City number, corresponding specifically to Davao City, while 1111 is Valeroso City number, corresponding specifically to Valeroso City. These designations are fixed within the framework, and each number remains exclusively associated with its respective expression.
+**Within this structure**, Davao City is designated as **8000**, while Valeroso City is designated as **1111**. Accordingly, **8000** is The Valeroso City number, corresponding specifically to Davao City, while 1111 is Valeroso City number, corresponding specifically to Valeroso City.
 
 
 
-Within this framework, **8000 and 1111** are not regarded solely in terms of their conventional use as **Philippine ZIP codes, postal codes, or other numerical or geographic codes.** Instead, they function as distinct and intentional numerical designations assigned respectively to the **two exclusive expressions of The Valeroso City**. This establishes a specific, direct, and unambiguous correspondence between each number and the expression to which it is assigned. Each designation has its own numerical identity and defined function. **Neither number is interchangeable with, equivalent to, or an alternative to the other, and neither is treated as comparable to the other as a designation within the framework**. Each number therefore corresponds exclusively to its designated expression, while both designations share the same common foundation: **The Valeroso City**.
+**Within this framework**, **8000** and **1111** are not regarded solely in terms of their conventional use as **Philippine ZIP codes, postal codes, or other numerical or geographic codes.** Instead, they function as distinct and intentional numerical designations assigned respectively to the **two exclusive expressions of The Valeroso City**. This establishes a specific, direct, and unambiguous correspondence between each number and the expression to which it is assigned. Each designation has its own numerical identity and defined function. **Neither number is interchangeable with, equivalent to, or an alternative to the other, and neither is treated as comparable to the other as a designation within the framework**. Each number therefore corresponds exclusively to its designated expression, while both designations share the same common foundation: **The Valeroso City**.
 
 
 
