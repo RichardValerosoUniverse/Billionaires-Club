@@ -44,7 +44,7 @@ Within this structure, Davao City is designated as 8000, while Valeroso City is 
 
 
 
-Within this framework, 8000 and 1111 are not simply Philippine ZIP Codes, postal codes, or other numerical or geographic codes. They function as distinct and intentional numerical designations assigned to the two exclusive expressions of The Valeroso City, establishing a clear numerical correspondence between each expression and its designated number. They are distinct and non-interchangeable, preserving the separate numerical identity of each expression.
+Within this framework, **8000 and 1111** are not regarded solely in terms of their conventional use as Philippine ZIP Codes, postal codes, or other numerical or geographic codes. Instead, they function as distinct and intentional numerical designations assigned respectively to the **two exclusive expressions of The Valeroso City**. This establishes a specific, direct, and unambiguous correspondence between each number and the expression to which it is assigned. Each designation has its own numerical identity and defined function. **Neither number is interchangeable with, equivalent to, or an alternative to the other, and neither is treated as comparable to the other as a designation within the framework**. Each number therefore corresponds exclusively to its designated expression, while both designations share the same common foundation: **The Valeroso City**.
 
 
 
