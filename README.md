@@ -40,7 +40,7 @@ Thus, within this framework, **“It is not always Davao City”** means that **
 
 
 
-**Within this structure**, Davao City is designated as **8000**, while Valeroso City is designated as **1111**. Accordingly, **8000** is The Valeroso City number, corresponding specifically to Davao City, while 1111 is Valeroso City number, corresponding specifically to Valeroso City.
+**Within this structure**, Davao City is designated as **8000**, while Valeroso City is designated as **1111**. Accordingly, **8000** is **The Valeroso Code of Paradise**, corresponding specifically to **Davao City**, while **1111** is **Valeroso Code of Heaven**, corresponding specifically to **Valeroso City.**
 
 
 
