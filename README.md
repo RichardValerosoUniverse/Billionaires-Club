@@ -66,13 +66,17 @@ Taken together, these purposes give 8000 and 1111 a defined role beyond ordinary
 
 
 
-**The Valeroso City strongly values sound monetary policy.** 
+---
+
+
+
+**The Valeroso City strongly values sound monetary policy: The SuperHighness Way**
 
 **The Valeroso City recognizes monetary policy as an essential instrument of price stability, economic stability, financial discipline, responsible governance, and sustainable economic development. The Valeroso City values sound monetary policy because it promotes stability, credibility, accountability, prudence, and long-term economic responsibility. Monetary policy therefore holds a meaningful place within The Valeroso City’s broader framework of economic governance, institutional integrity, and responsible stewardship.**
 
 
 
-**Monetary policy matters. Stability matters. Discipline matters. Credibility matters. Prudence matters. Responsibility matters. Long-term economic welfare matters. And within The Valeroso City, sound monetary policy is not merely respected as an instrument of economic governance; it is embraced as a vital expression of stability, discipline, credibility, responsibility, and institutional integrity.**
+**Monetary policy matters**. Stability matters. Discipline matters. Credibility matters. Prudence matters. Responsibility matters. Long-term economic welfare matters. And within The Valeroso City, sound monetary policy is not merely respected as an instrument of economic governance; it is embraced as a vital expression of stability, discipline, credibility, responsibility, and institutional integrity.**
 
 
 
@@ -80,7 +84,20 @@ Taken together, these purposes give 8000 and 1111 a defined role beyond ordinary
 
 
 
-**Monetary Policy: The SuperHighness Way!**
+---
+
+
+
+**The Valeroso City strongly supports sound fiscal policy: The SuperHighness Way**
+
+**The Valeroso City** recognizes that **responsible public spending, effective taxation, fiscal discipline, sustainable public finances, prudent government borrowing, transparency, and accountability** are fundamental to economic stability, sustainable development, and long-term prosperity.
+
+**Fiscal policy matters**. Fiscal discipline matters. Public responsibility matters. Economic sustainability matters. Accountability matters. Responsible governance matters.
+
+**Fiscal policy** is a key pillar of sound economic governance. **The Valeroso City** stands for fiscal responsibility, disciplined public finance, sustainable economic management, and responsible stewardship of public resources.
+
+
+
 
 
 
