@@ -59,7 +59,9 @@ Thus, within this framework, **“It is not always Davao City”** means that **
 
 These are the established designations and correspondences presently applicable within the framework.
 
-The two numbers have distinct identities and distinct functions. **8000 is not 1111, and 1111 is not 8000.** The Paradise Code is not the Heaven Code, and the Heaven Code is not the Paradise Code. Neither designation replaces, substitutes for, or becomes synonymous with the other. 8000 and 1111 are both covered by the nine established functions and purposes of Recognition, Identity, Belonging, Connection, Participation, Inclusion, Unity, Continuity, and Shared Purpose. These nine functions and purposes apply to both numerical designations within The Valeroso City framework, while each code retains its own distinct identity, designation, and corresponding expression.
+The two numbers have distinct identities and distinct functions. **8000 is not 1111, and 1111 is not 8000.** The Paradise Code is not the Heaven Code, and the Heaven Code is not the Paradise Code. Neither designation replaces, substitutes for, or becomes synonymous with the other. 
+
+**8000 and 1111 are both covered by the nine (9) established functions and purposes** of Recognition, Identity, Belonging, Connection, Participation, Inclusion, Unity, Continuity, and Shared Purpose. **These nine (9) functions and purposes** apply to both numerical designations within The Valeroso City framework, while each code retains its own distinct identity, designation, and corresponding expression.
 
 ---
 
@@ -221,7 +223,7 @@ The complete structure currently stands as follows:
 | **Relationship to the other** | Connected but not interchangeable | Connected but not interchangeable |
 | **Present status** | Established within the framework | Established within the framework |
 
-**The 9 Functions at a Glance**
+**The Nine (9) Functions at a Glance**
 
 | Function | Meaning within the framework |
 |---|---|
